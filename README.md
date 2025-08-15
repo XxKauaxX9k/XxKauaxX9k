@@ -1,4 +1,4 @@
--  Hi, I’m @XxKauaxX9k
+-  Hi, I’m Kaua
 -  I’m interested in tecnologi
 -  I’m currently learning mora about programation and TI area
 -  I’m looking to collaborate on some project to get more skils 
